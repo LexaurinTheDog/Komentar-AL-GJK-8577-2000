@@ -58,7 +58,7 @@ Në interpretim, lidhja me pagën e Kryetarit të Gjykatës së Lartë ngre pyet
 >
 > a) të kenë një mbrojtje të veçantë të vetes, familjes dhe pronës, kur një gjë të tillë e kërkojnë vetë për rrethana serioze ose çmohet se është e domosdoshme. Organet përkatëse, të ngarkuara me ruajtjen e personaliteteve të larta, janë të detyruara t’i përgjigjen çdo kërkese të bërë në këtë drejtim;
 >
-> b) të përfitojnë leje të pagueshme vjetore 40 ditë. Leja vjetore bëhet gjatë muajit gushtshtator;
+> b) të përfitojnë leje të pagueshme vjetore 40 ditë. Leja vjetore bëhet gjatë muajit gusht-shtator;
 >
 > c) të përfitojnë falas Fletoren Zyrtare, gazeta dhe revista juridike;
 >
